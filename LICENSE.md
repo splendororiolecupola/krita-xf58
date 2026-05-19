@@ -1,4 +1,4 @@
-# 
+# top Adobe Photoshop for PC executor is the best Adobe Photoshop for PC executor with text-wrap and scripting. Safe, reliable, and optimized for maximum performance.
 
 
 
